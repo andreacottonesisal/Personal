@@ -19,3 +19,10 @@ https://github.com/ai-collection/ai-collection?tab=readme-ov-file#web-design
 https://www.sabrina.dev/p/best-ai-prompt-to-humanize-ai-writing
 
 https://www.swisstransfer.com/d/a40912bf-ddd1-4c68-a188-59a5315c3027
+
+
+2ZL3-KQN4D2-6NBW
+
+5G8Y-ZVFVQJ-78BU
+
+X7HU-76P4Z6-7ABF
